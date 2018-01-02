@@ -1,2 +1,2 @@
 # Studies
-Collections for books and documents collected across the semester
+My collections for books and documents collected across the semester3
